@@ -2,4 +2,4 @@
 
 
 
-![image alt](https://github.com/nguyenvuongthanhhai2-eng/my-music/blob/51466518fc8916e58be7648d9638cf777e885cd3/Gemini_Generated_Image_1yt8a71yt8a71yt8.png)
+![image alt](https://github.com/nguyenvuongthanhhai2-eng/starblast_music/blob/f6f4b20cc589017807c5e3a67f2c39743716d750/Gemini_Generated_Image_1yt8a71yt8a71yt8-removebg-preview.png)
