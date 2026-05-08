@@ -2,4 +2,4 @@
 
 
 
-![image alt](https://github.com/nguyenvuongthanhhai2-eng/starblast_music/blob/f36679c863f776109604c054eec730a836e1b848/Screenshot_2026-05-04_121033-removebg-preview.png)
+![image alt](https://github.com/nguyenvuongthanhhai2-eng/starblast_music/blob/39620710be50c833231641fbcc44f07eb7c07838/Finalizer.png.png)
